@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 我的名字是谢立新，家乡在湖南；我来广东已经有十余年了，可以和说粤语的广东人流利的交谈粤语。
+- 联系方式：2422619566@qq.com
